@@ -1,5 +1,6 @@
 ## 绿客R
-~~文件库~~
+
+~~鸡你太美~~
 
 **[抖音号：L_K_R](https://www.douyin.com/user/MS4wLjABAAAAjn3ggdPcN3v4zU5TkhlwUq2pdcIvAwl0Qix3p64qXdU)**
 
